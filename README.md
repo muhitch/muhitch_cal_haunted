@@ -1,1 +1,0 @@
-# muhitch_cal_haunted
